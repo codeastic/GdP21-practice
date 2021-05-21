@@ -1,9 +1,9 @@
 # GdP21
-For all these musicinformatics nerds.
-Hallo
-Praise the sun !!!!!1!11!
+
+For all these musicinformatics nerds. Hallo Praise the sun !!!!!1!11!
 *flurp*
-YAAAASSS
-YayYay
+YAAAASSS YayYay
 
 Wuhu
+
+Hello my friendss
